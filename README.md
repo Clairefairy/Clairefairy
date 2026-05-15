@@ -1,5 +1,5 @@
-## Hi there 👋
 
+Saí de Medicina Veterinária e agora eu tô inventando moda com código... socorro... (WIP, um dia eu atualizo meu perfil 💤)
 <!--
 **Clairefairy/Clairefairy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
