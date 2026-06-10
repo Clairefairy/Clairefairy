@@ -8,7 +8,7 @@
 <img align="left" alt="Claire" width="280" src="https://github.com/user-attachments/assets/bfdbcb7b-f06f-4f34-94fb-509edca8ac1c" />
 
 <p>
-You can call me Claire!
+Hi there! You can call me Claire! (ꈍ ꒳ ꈍ✿)
 </p>
 
 <p>
@@ -32,7 +32,7 @@ I'm an avid reader, lover of visual novels, puzzle and strategy games, and an en
 </p>
 
 <p>
-My soft skills include: communication, public speaking, empathy, creativity, fast learner, detail-oriented, user-first thinking, organization, punctuality, problem solving, and leadership when the situation calls for it.
+My soft skills include: communication, public speaking, empathy, creativity, fast learner, detail-oriented, user-first thinking, organization, punctuality, problem solving, and leadership when the situation calls for it! ٩( ๑•̀o•́๑ )و
 </p>
 
 <br clear="all" />
