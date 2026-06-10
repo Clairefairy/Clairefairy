@@ -12,11 +12,11 @@ Hi there! You can call me Claire! (ꈍ ꒳ ꈍ✿)
 </p>
 
 <p>
-Brazilian, 30y+, about to graduate on Systems Analysis and Development at Senac-PE. Recently went through a career change, so I'm still figuring out all this coding thingies, but I feel like I'm doing okay and learning a lot!
+Brazilian, 30y+, about to graduate on Systems Analysis and Development at Senac-PE. Recently went through a career change, so I'm still figuring out all these coding thingies, but I feel like I'm doing okay and steadily learning!
 </p>
 
 <p>
-Aside from my native language being  Brazilian Portuguese, I'm fluent in English (C2) and picking up LATAM Spanish (B1) and French (A2).
+Native Brazilian Portuguese speaker, but I'm also fluent in English (C2) and picking up LATAM Spanish (B1) and French (A2).
 </p>
 
 <p>
